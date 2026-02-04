@@ -6,6 +6,7 @@
 - 📫 How to reach me **uzairyfarooq002@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+www.linkedin.com/in/uzair-f-733166291
 <p align="left">
 </p>
 
